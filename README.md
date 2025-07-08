@@ -22,4 +22,4 @@
 我们将持续优化内容、扩充资源，为您提供更安全、更高效、更丰富的日本AV免费在线播放体验，欢迎收藏本站，定期访问获取最新影片更新。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd64069/33659 ）</span>
